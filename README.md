@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IAmSerepok
+- 👀 I’m interested in Math, Physics and Programming
+- 🌱 I’m currently learning in FEFU
+- 😄 Pronouns: a*Г(a)
+- ⚡ Fun fact: Если мотоциклисты едут молча, значит они сыты
